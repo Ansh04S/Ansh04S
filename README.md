@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Ansh Sureka
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate Software Developer || Full-Stack Developer || Data Analyst**
 
 Email Me 👉 ✉️ **anshsureka04@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
